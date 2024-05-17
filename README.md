@@ -1,4 +1,4 @@
-###repositorio alura da beatriz (my)
+repositorio alura da beatriz (my)
 📘... https://scratch.mit.edu/projects/980752895
 📘... https://scratch.mit.edu/projects/983784936
 📘... https://scratch.mit.edu/projects/980748913
